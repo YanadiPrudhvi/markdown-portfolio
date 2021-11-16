@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+I like watching movies, sorry a lot of movies.
+favarates to pick from them is difficult but if i want to pick something than i would say marvel movies.
+I like playing volleyball with my friends.
